@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows elite Transition: time-remapping & timeline-editing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
